@@ -1,1 +1,0 @@
-# Equipos-f-rmula1
